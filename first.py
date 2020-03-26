@@ -1,1 +1,1 @@
-hiii i am a python developer
+Be Psyco at all manner
